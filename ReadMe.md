@@ -1,5 +1,5 @@
 # 💫 About Me:
-i love coding because it is something that i can control on this chaotic world
+i love coding because it is something that i can control in this chaotic world
 
 
 ## 🌐 Socials:
